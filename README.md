@@ -1,2 +1,3 @@
 # sofiagamejam
-orlin e debel vaki e 4eren
+emkata shte bude iznasilen
+
